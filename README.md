@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my public projects are available at [https://github.com/avinashgharule](https://github.com/avinashgharule)
 
-- 📫 How to reach me **avinashgharule7766@gmail.com**
+- 📫 How to reach me **avinashgharule******@gmail.com**
 
 - 📄 Know about my professional experiences My Resume
 
