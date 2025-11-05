@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **avinashgharule7766@gmail.com**
 
-- 📄 Know about my professional experiences [https://1drv.ms/w/c/7038c7c97fdd45f6/EcB1maGqh9NFvuba7TewvxwBzs7hFPCCMGGoH_O3lsa8FA?e=9Ze18C](https://1drv.ms/w/c/7038c7c97fdd45f6/EcB1maGqh9NFvuba7TewvxwBzs7hFPCCMGGoH_O3lsa8FA?e=9Ze18C)
+- 📄 Know about my professional experiences My Resume
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
